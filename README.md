@@ -4,7 +4,7 @@
 - 💞 Busco la intergación curricular de la tecnología
 - 📫 popocatepetl2023@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Me disgusta el maltrato de los animales
 
 <!---
 Fito66/Fito66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
